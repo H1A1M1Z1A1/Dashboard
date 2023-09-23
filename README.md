@@ -1,5 +1,6 @@
 
 
+![Dashboard_sc](https://github.com/H1A1M1Z1A1/Dashboard/assets/92072539/fdcaea58-6a45-4853-a00a-62b52c500584)
 
 
 
