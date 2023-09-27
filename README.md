@@ -1,5 +1,8 @@
 
-![crypto_dashboard1](https://github.com/H1A1M1Z1A1/Dashboard/assets/92072539/4564ae87-6e95-42df-8e53-9299c48cac9d)
+
+
+https://github.com/H1A1M1Z1A1/Dashboard/assets/92072539/b398a393-8fa4-4530-9368-30dd82016392
+
 
 
 
