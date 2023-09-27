@@ -1,5 +1,5 @@
 
-![crypto_dashboard1](https://github.com/H1A1M1Z1A1/Dashboard/assets/92072539/904b7e26-9390-4edf-8023-a20485790b05)
+![crypto_dashboard1](https://github.com/H1A1M1Z1A1/Dashboard/assets/92072539/4564ae87-6e95-42df-8e53-9299c48cac9d)
 
 
 
